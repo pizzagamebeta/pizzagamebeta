@@ -4,7 +4,7 @@
 <div align="center" dir="auto">
   <div><b>leaf / monster </b>　she ノ <ins>her</ins> ノtheir 　minor</div>
   <div>eng/pt    <img src="https://64.media.tumblr.com/fdf89499c48ac45deb2adee87e0a2cec/2a50e0b64903080c-64/s1280x1920/63afa1f02152d7f038ad36581615f0320846a475.png" alt="bisexual">   fictionkin/alterhuman</div>
-  <div>୨ৎ    i love my <a href="https://github.com/THEmalachi4321" rel="https://github.com/THEmalachi4321">bf</a> <3 </div>
+  <div>୨ৎ    i love my <a href="https://github.com/worldsfiinest" rel="https://github.com/worldsfiinest">bff</a> <3 </div>
 </p>
 
 <p dir="auto"><a target="_blank" href="https://www.roblox.com/games/16281075967/Pizza-Game-Beta"><img src="https://files.catbox.moe/n45xi5.png" alt="dont know the artist, sorry!" style="max-width: 50%;"></a></p>
