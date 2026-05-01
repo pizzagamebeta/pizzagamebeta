@@ -8,7 +8,7 @@
 </p>
 
 <p dir="auto"><a target="_blank" href="https://www.roblox.com/games/16281075967/Pizza-Game-Beta"><img src="https://files.catbox.moe/n45xi5.png" alt="dont know the artist, sorry!" style="max-width: 50%;"></a></p>
-<p dir="auto"><a href="https://pizzagamebeta.atabook.org/" rel="https://pizzagamebeta.atabook.org/">atabook</a> 　 <a href="https://straw.page/" rel="https://leafpaws.straw.page/">strawpage</a> 　 <a href="https://rentry.co/pizza-game-beta" rel="https://rentry.co/pizza-game-beta">rentry</a></p>
+<p dir="auto"><a href="https://pizzagamebeta.atabook.org/" rel="https://pizzagamebeta.atabook.org/">atabook</a> 　 <a href="https://leafpaws.straw.page/" rel="https://leafpaws.straw.page/">strawpage</a> 　 <a href="https://rentry.co/pizza-game-beta" rel="https://rentry.co/pizza-game-beta">rentry</a></p>
 
 <div style="display: flex; gap: 20px; align-items: flex-start;">
   <img src="https://64.media.tumblr.com/5300eabf6472409b12cac2498996df5b/tumblr_pbtepqcYp21wlxvjlo7_100.gif" alt="stamp" style="max-width: 100%;">
